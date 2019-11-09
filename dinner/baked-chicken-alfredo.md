@@ -13,9 +13,9 @@
  
 ### Instructions
 1.  In a medium saucepan add butter, heavy whipping cream, and cream cheese. Cook over medium heat and whisk until melted.
-2.  Add the minced garlic, garlic powder, italian seasoning, salt and pepper. Continue to whisk until smooth. Add the grated parmesan cheese. 
+2.  Add the minced garlic, garlic powder, Italian seasoning, salt and pepper. Continue to whisk until smooth. Add the grated Parmesan cheese. 
 3.  Bring to a simmer and continue to cook for about 3-5 minutes or until it starts to thicken. Toss it with your favorite pasta!
-4. 
+
 ### Recipe Notes
 Updated on October 24, 2019
 Original Post on February 18, 2016
