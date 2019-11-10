@@ -1,6 +1,6 @@
 
 # Our Favorite Buttermilk Biscuit
-[Source](https://www.southernliving.com/recipes/buttermilk-biscuits)
+[Source](https://www.southernliving.com/recipes/buttermilk-biscuits)  
 Hands-on Time
 25 Mins
 Total Time
@@ -25,15 +25,15 @@ This no-fail biscuit recipe will make you look like a pro, even if this is your 
 
 ### How to Make It
 Step 1
-Preheat oven to 475°. Grate frozen butter using large holes of a box grater. Toss together grated butter and flour in a medium bowl. Chill 10 minutes.
+Preheat oven to 475°. Grate frozen butter using large holes of a box grater. Toss together grated butter and flour in a medium bowl. Chill 10 minutes.  
 Step 2
-Make a well in center of mixture. Add buttermilk, and stir 15 times. Dough will be sticky.
+Make a well in center of mixture. Add buttermilk, and stir 15 times. Dough will be sticky.  
 Step 3
-Turn dough out onto a lightly floured surface. Lightly sprinkle flour over top of dough. Using a lightly floured rolling pin, roll dough into a 3/4-inch-thick rectangle (about 9 x 5 inches). Fold dough in half so short ends meet. Repeat rolling and folding process 4 more times.
+Turn dough out onto a lightly floured surface. Lightly sprinkle flour over top of dough. Using a lightly floured rolling pin, roll dough into a 3/4-inch-thick rectangle (about 9 x 5 inches). Fold dough in half so short ends meet. Repeat rolling and folding process 4 more times.  
 Step 4
-Roll dough to 1/2-inch thickness. Cut with a 2 1/2-inch floured round cutter, reshaping scraps and flouring as needed.
+Roll dough to 1/2-inch thickness. Cut with a 2 1/2-inch floured round cutter, reshaping scraps and flouring as needed.  
 Step 5
-Place dough rounds on a parchment paper-lined jelly-roll pan. Bake at 475° for 15 minutes or until lightly browned. Brush with melted butter.
+Place dough rounds on a parchment paper-lined jelly-roll pan. Bake at 475° for 15 minutes or until lightly browned. Brush with melted butter.  
 
 ### Chef's Notes
 
