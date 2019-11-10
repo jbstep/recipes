@@ -1,5 +1,6 @@
 
 ## Super Easy Fermented Pickled Jalapeños Recipe
+[Source](https://anoregoncottage.com/fermented-pickled-jalapenos/2/)
 
 _Once you realize how easy it is to make fermented pickled jalapeños, you'll never buy jars of sliced pickled jalapeños again - especially since you get all the probiotic benefits with these delicious jalapeños!_
 
