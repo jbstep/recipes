@@ -1,6 +1,5 @@
 # Chili
 
-I have iterated my way to this over the last probably 10 years, mostly settled on a formulation that I like. You can use some of this for the Chili Mac pressure cooker or other chili recipes. Great fall/winter food
 
 ## Ingredients
 
