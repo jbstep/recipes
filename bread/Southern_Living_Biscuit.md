@@ -2,11 +2,11 @@
 # Our Favorite Buttermilk Biscuit
 [Source](https://www.southernliving.com/recipes/buttermilk-biscuits)  
 Hands-on Time
-25 Mins
+25 Mins  
 Total Time
-50 Mins
+50 Mins  
 Yield
-Makes 12 to 14 biscuits
+Makes 12 to 14 biscuits  
 
 By  [SOUTHERN LIVING](https://www.southernliving.com/authors/southern_living)
 
