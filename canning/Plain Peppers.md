@@ -1,5 +1,6 @@
 CANNING PLAIN PEPPERS
 =====================
+[Source](https://www.healthycanning.com/canning-plain-peppers/)
 
 Published: Aug 12, 2015 - Modified: Sep 10, 2019 - by Healthy Canning
 
