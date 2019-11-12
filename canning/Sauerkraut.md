@@ -1,6 +1,8 @@
 HOME CANNED SAUERKRAUT
 ======================
 
+[Source](https://www.healthycanning.com/home-canned-sauerkraut/)
+
 Published: Dec 13, 2017 - Modified: Sep 7, 2019 - by Healthy Canning
 
 [Jump to Recipe](https://www.healthycanning.com/home-canned-sauerkraut/#wprm-recipe-container-14380) [Print Recipe](https://www.healthycanning.com/wprm_print/14380)
