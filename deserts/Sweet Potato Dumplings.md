@@ -1,6 +1,9 @@
-### Sweet Potato Dumplings
-[Source](https://www.justapinch.com/recipes/cook/78472)
-[Source 2](https://www.mamas-southern-cooking.com/sweet-potato-dumplings.html)
+### Sweet Potato Dumplings  
+
+[Source](https://www.justapinch.com/recipes/cook/78472)  
+
+[Source 2](https://www.mamas-southern-cooking.com/sweet-potato-dumplings.html)  
+
 ![Sweet Potato Dumplings](http://www.mamas-southern-cooking.com/images/SweetPotatoDumplings-0.jpg)
 
 
