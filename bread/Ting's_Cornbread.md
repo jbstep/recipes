@@ -16,4 +16,4 @@
 3. Mix all dry ingredients
 4. Make well and then add all wet ingredients
 5. Mix well and then add to pan once oven finishes preheating
-6. Cook for 20 minutes.
+6. Cook for 30 minutes.
