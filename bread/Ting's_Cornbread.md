@@ -12,8 +12,8 @@
 
 ### Directions
 1. Preheat oven to 400F
-2. Put 1/4 Cup of Oil in pan and put in the oven while it is preheating
+2. Put 1/4 Cup of oil in pan and put in the oven while it is preheating
 3. Mix all dry ingredients
-4. Make well and then add all wet ingredients
+4. Make a well in the center of dry ingredients and then add all wet ingredients
 5. Mix well and then add to pan once oven finishes preheating
 6. Cook for 30 minutes.
