@@ -2,7 +2,7 @@
 
 [Source](https://www.nytimes.com/2019/12/06/dining/caramel-corn-recipe.html)  
 
-###Description  
+### Description  
 Made from a combination of maple syrup and brown sugar, the rich, buttery caramel on this popcorn has a brittle, candy-like crunch that’s heightened by plenty of toasted pecans added alongside. (Cracker Jack fans can substitute roasted, salted peanuts.) A small amount of baking soda keeps the caramel from becoming sticky, but note that you’ll need an instant-read thermometer to yield the best result. If you’d rather use an air popper to prepare your popcorn, you can — just skip Step 2
 
 ### Ingredients  
