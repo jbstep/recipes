@@ -6,15 +6,14 @@
 
 The BEST Homemade Mac and Cheese of your LIFE. Outrageously cheesy, ultra creamy, and topped with a crunchy Panko-Parmesan topping, this mac and cheese recipe is most definitely a keeper. I used three different cheese and a homemade cheese sauce to take this macaroni and cheese recipe over the top. 
 
-Course Dinner  
-Cuisine American
-Keyword cheese, dinner, kid friendly, mac and cheese, macaroni and cheese  
-Prep Time 20 minutes  
-Cook Time 30 minutes  
-Total Time 1 hour  
-Servings [12]
-
-Calories 642kcal
+Course - Dinner  
+Cuisine - American  
+Keyword - cheese, dinner, kid friendly, mac and cheese, macaroni and cheese  
+Prep Time - 20 minutes  
+Cook Time - 30 minutes  
+Total Time - 1 hour  
+Servings - 12  
+Calories - 642kcal  
 
 ### Ingredients
 *   16 oz elbow macaroni, cooked (or other tubular pasta)
