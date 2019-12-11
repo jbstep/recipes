@@ -1,5 +1,7 @@
-## Traditional Cornbread Dressing
-[Source](https://www.food.com/recipe/traditional-cornbread-dressing-46776)
+## Traditional Cornbread Dressing  
+
+[Source](https://www.food.com/recipe/traditional-cornbread-dressing-46776)  
+
 READY IN: 50 mins  
 SERVES: 10  
 UNITS: US  
