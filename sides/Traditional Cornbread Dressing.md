@@ -1,4 +1,4 @@
-## Traditional Cornbread Dressing Recipe
+## Traditional Cornbread Dressing
 READY IN: 50 mins  
 SERVES: 10  
 UNITS: US  
