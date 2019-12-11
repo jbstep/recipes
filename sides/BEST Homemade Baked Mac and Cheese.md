@@ -1,6 +1,6 @@
 ## The BEST Homemade Baked Mac and Cheese  
 
-[Source](https://www.momontimeout.com/best-homemade-baked-mac-and-cheese-recipe/)  
+[Source Article](https://www.momontimeout.com/best-homemade-baked-mac-and-cheese-recipe/)  
 
 ![Mac-n-cheese](https://www.momontimeout.com/wp-content/uploads/2018/10/homemade-mac-and-cheese-recipe-titled-150x150.jpg)
 
@@ -12,7 +12,7 @@ Keyword cheese, dinner, kid friendly, mac and cheese, macaroni and cheese
 Prep Time 20 minutes  
 Cook Time 30 minutes  
 Total Time 1 hour  
-Servings [12](#)
+Servings [12]
 
 Calories 642kcal
 
