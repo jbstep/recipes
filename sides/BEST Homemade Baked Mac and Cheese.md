@@ -8,12 +8,11 @@ The BEST Homemade Mac and Cheese of your LIFE. Outrageously cheesy, ultra creamy
 
 Course - Dinner  
 Cuisine - American  
-Keyword - cheese, dinner, kid friendly, mac and cheese, macaroni and cheese  
 Prep Time - 20 minutes  
 Cook Time - 30 minutes  
 Total Time - 1 hour  
 Servings - 12  
-Calories - 642kcal  
+Calories - 642 kcal  
 
 ### Ingredients
 *   16 oz elbow macaroni, cooked (or other tubular pasta)
