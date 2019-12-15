@@ -1,4 +1,4 @@
-###3-Ingredient Queso Cheese Dip Recipe    
+### 3-Ingredient Queso Cheese Dip    
 [Source Link](https://www.slowcookerkitchen.com/3-ingredient-queso-cheese-dip-recipe/)  
 ![Queso Dip](https://381920.smushcdn.com/1170290/wp-content/uploads/2015/10/3-Ingredient-Queso-Cheese-Dip-Recipe-3-Complete1.jpg?lossy=1&strip=1&webp=1)
 
