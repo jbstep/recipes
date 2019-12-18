@@ -5,16 +5,16 @@
 - 1 pound ground pork  
 - 2 cloves garlic, crushed  
 - 1/2 cup chopped onion 
-- 1/2 cup minced carrots  
-- 1/2 cup sliced green beans  
-- 1/2 cup thinly sliced green cabbage  
+- 1 bag shredded carrots  
+- 1 cup sliced green beans  
+- 1 bag shredded cabbage  
 - 14 ounces of chicken broth
 - 1 teaspoon ground black pepper  
 - 1 teaspoon salt  
 - 1 teaspoon garlic powder  
 - 1 teaspoon soy sauce  
 - 2 egg whites
-- 30 lumpia wrappers  
+- 30 lumpia (spring roll) wrappers  
 - 2 cups vegetable oil for frying  
 
 ### Directions
