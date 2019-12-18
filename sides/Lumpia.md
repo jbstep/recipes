@@ -30,7 +30,7 @@
 10. When the cabbage is cooked but still crispy, stir in the pork.  
 11. Season with pepper, salt, garlic powder, and soy sauce. 
 12. Remove from heat, and set aside until cool enough to handle.
-13. Place three heaping tablespoons of the filling diagonally near one corner of each wrapper, leaving a 1 1/2 inch space at both ends. 
+13. Place about two heaping tablespoons of the filling diagonally near one corner of each wrapper, leaving a 1 1/2 inch space at both ends. 
 14. Fold the side along the length of the filling over the filling, tuck in both ends, and roll neatly. 
 15. Keep the roll tight as you assemble. Moisten the other side of the wrapper with egg whites to seal the edge. 
 16. Cover the rolls with plastic wrap to retain moisture.
@@ -39,4 +39,4 @@
 19. Fry the rolls for 1 to 2 minutes, until all sides are golden brown. 
 20. Drain on paper towels. 
 
-Serve immediately.
+These are approximations, adjust according to your preferences. If you can't find the spring roll wrappers, WalMart carries egg roll wrappers that are thicker but will work just fine.
