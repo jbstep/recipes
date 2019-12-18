@@ -29,7 +29,7 @@
 9. When those are done, add cabbage. 
 10. When the cabbage is cooked but still crispy, stir in the pork.  
 11. Season with pepper, salt, garlic powder, and soy sauce. 
-12. Remove from heat, and set aside until cool enough to handle.
+12. Remove from heat, drain, and set aside until cool enough to handle.
 13. Place about two heaping tablespoons of the filling diagonally near one corner of each wrapper, leaving a 1 1/2 inch space at both ends. 
 14. Fold the side along the length of the filling over the filling, tuck in both ends, and roll neatly. 
 15. Keep the roll tight as you assemble. Moisten the other side of the wrapper with egg whites to seal the edge. 
