@@ -13,6 +13,7 @@
 - 1 teaspoon salt  
 - 1 teaspoon garlic powder  
 - 1 teaspoon soy sauce  
+- 2 egg whites
 - 30 lumpia wrappers  
 - 2 cups vegetable oil for frying  
 
@@ -28,7 +29,7 @@
 9. Remove from heat, and set aside until cool enough to handle.
 10. Place three heaping tablespoons of the filling diagonally near one corner of each wrapper, leaving a 1 1/2 inch space at both ends. 
 11. Fold the side along the length of the filling over the filling, tuck in both ends, and roll neatly. 
-12. Keep the roll tight as you assemble. Moisten the other side of the wrapper with water to seal the edge. 
+12. Keep the roll tight as you assemble. Moisten the other side of the wrapper with egg whites to seal the edge. 
 13. Cover the rolls with plastic wrap to retain moisture.
 14. Heat a heavy skillet over medium heat, add oil to 1/2 inch depth, and heat for 5 minutes. 
 15. Slide 3 or 4 lumpia into the oil. 
