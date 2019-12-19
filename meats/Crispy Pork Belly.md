@@ -1,6 +1,6 @@
 ## Crispy Pork Belly
-[Source Link](https://twosleevers.com/crispy-pork-belly/)
-![pork belly](https://twosleevers.com/wp-content/uploads/2018/06/air-fryer-crispy-pork-belly-sideways-copy-680x450.jpg)
+[Source Link](https://twosleevers.com/crispy-pork-belly/)  
+![pork belly](https://twosleevers.com/wp-content/uploads/2018/06/air-fryer-crispy-pork-belly-sideways-copy-680x450.jpg)  
 
 This Crispy Pork Belly recipe tastes like an absolute delicacy with none of the effort for traditional pork belly recipes. Make Lechon Kawali at home!
 
@@ -10,12 +10,10 @@ Rest Time: 10 minutes
 Total Time: 40 minutes
 Course: Main Courses
 Cuisine: Filipino
-
-Keyword: crispy pork belly, lechon kawali, pork belly recipes
-
 Servings: 4
-
 Calories: 594kcal
+
+Keyword: crispy pork belly, lechon kawali, pork belly recipes  
 
 ### Instructions
 
