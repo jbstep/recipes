@@ -5,7 +5,7 @@ QUICK KOREAN BEEF BOWLS
 
 ![Quick Korean Beef Bowls on a white marble countertop.](https://www.simplysissom.com/wp-content/uploads/2019/01/Insta-Korean-Beef-Bowls-150x150.jpg)
 
-*Quick Korean Beef Bowls -- A simple, easy weeknight dinner option that's bursting with flavor and that comes together in 15 minutes. *
+*Quick Korean Beef Bowls -- A simple, easy weeknight dinner option that's bursting with flavor and that comes together in 15 minutes.*
 
 -   Author: Bailey Sissom
 -   Prep Time: 5 minutes
